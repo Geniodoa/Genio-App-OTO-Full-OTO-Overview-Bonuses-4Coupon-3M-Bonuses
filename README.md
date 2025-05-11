@@ -2,6 +2,109 @@
 <h1 class="" data-start="161" data-end="232">Genio App OTO Review – Are the Upgrades Worth It? My Honest Breakdown</h1>
 <p class="" data-start="234" data-end="554">If you’ve been looking into Genio App and wondering whether the <strong data-start="298" data-end="316">Genio App OTOs</strong> (One-Time Offers) are worth grabbing, you’re in the right place. In this detailed <strong data-start="399" data-end="423">Genio App OTO Review</strong>, I’ll explain exactly what these upgrades offer, who they’re for, and whether they can really help you scale your online business.</p>
 <p class="" data-start="556" data-end="665">Spoiler alert: if you’re serious about using Genio App to make money — the OTOs are where the real gold lies.</p>
+# ⚙️ Genio – Full Funnel + Exclusive Bonuses
+
+## ⚠️ READ THIS FIRST:
+To unlock **exclusive William bonuses**, you must purchase from the **Front End link** below.
+
+📌 **WarriorPlus Link (FE):**  
+`warriorplus[dot]com/o2/a/n78ct44/0/g`  
+🎯 **Affiliate ID: 614944 – mobikill2016** (Required for bonus eligibility)
+
+---
+
+## 🧠 Front End (FE): Genio  
+🎟️ **Use Coupon Code: GNO3OFF**  
+🛠️ Build high-converting AI-powered businesses in minutes  
+👉 Link:  
+`warriorplus[dot]com/o2/a/n78ct44/0/g`
+
+---
+
+## ♾️ OTO 1: Genio Unlimited  
+🚀 Unlock all features and unlimited usage  
+👉 `grabgenio[dot]com/unlimited-edition`  
+💸 Discount: `$20`
+
+---
+
+## 📦 OTO 2: Genio Done For You  
+🎁 Preloaded profit systems and DFY campaigns  
+👉 `grabgenio[dot]com/done-for-you`  
+💸 Discount: `$100`
+
+---
+
+## ⚙️ OTO 3: Genio Automation  
+🤖 Automate income streams for hands-free profits  
+👉 `grabgenio[dot]com/automation-edition`  
+💸 Discount: `$20`
+
+---
+
+## 💹 OTO 4: Genio Income Maximizer  
+💰 Boost conversions and sales automatically  
+👉 `grabgenio[dot]com/income-maximizer`  
+💸 Discount: `$20`
+
+---
+
+## 🚦 OTO 5: Genio Limitless Rapid Traffic  
+📈 Unlimited traffic tools & viral growth features  
+👉 `grabgenio[dot]com/limitless-traffic`  
+💸 Discount: `$20`
+
+---
+
+## 🤑 OTO 6: Genio Cloned Affiliate Profits  
+🧬 Clone proven affiliate campaigns for instant use  
+👉 `grabgenio[dot]com/cloned-affiliate-profits`  
+💸 Discount: `$20`
+
+---
+
+## 📱 OTO 7: Genio Mobile Income Payday  
+📲 Mobile-ready profit systems for daily income  
+👉 `grabgenio[dot]com/mobile-paydayz`  
+💸 Discount: `$20`
+
+---
+
+## 🏢 OTO 8: Genio Franchise Rights  
+🛍️ Resell Genio as your own & keep 100% profits  
+👉 `grabgenio[dot]com/franchise-rights`  
+💸 Discount: `$100`
+
+---
+
+## 💻 OTO 9: Genio DFY Profit Site  
+🧱 Complete done-for-you affiliate websites  
+👉 `grabgenio[dot]com/dfy-profit-site`  
+💸 Discount: `$20`
+
+---
+
+## 🎁 Bonus Page – What You’ll Get  
+➡️ Bonus Preview:  
+`williamreview[dot]com/genio/`
+
+---
+
+## 💎 Special Bonuses From Me  
+🎁 **Mega 5,000 Bonus Vault – Worth $2,976,749+**  
+👉 Access here:  
+`jvzooplinformation[dot]blogspot[dot]com/2023/04/vip-5000-bonuses-from-william-review.html`
+
+---
+
+## ✅ How to Claim Your Bonuses:
+
+1. Buy **Genio** from the **FE link** above  
+2. Email your **receipt ID** to: `support@williamreview[dot]com`  
+3. You'll receive **ALL bonuses within 12 hours**  
+📧 Be sure to confirm you completed Step 2 via email!
+
+---
 
 <h2 class="" data-start="667" data-end="688">What Is Genio App?</h2>
 <p class="" data-start="690" data-end="1015">Let’s start with the basics. <strong data-start="719" data-end="732">Genio App</strong> is an AI-powered website and funnel builder that lets you create stunning, responsive websites just by speaking your ideas. Powered by Google’s Gemini 2.5 Pro AI, Genio App turns simple voice commands into real, functional websites in seconds — with built-in copy, design, and code.</p>
@@ -206,3 +309,106 @@
 
 <hr class="" data-start="5328" data-end="5331" />
 <p class="" data-start="5333" data-end="5440">Ready to unlock the true power of Genio?<br data-start="5373" data-end="5376" /><strong data-start="5376" data-end="5440">Get Genio App OTO now and start scaling your online success!</strong></p>
+# ⚙️ Genio – Full Funnel + Exclusive Bonuses
+
+## ⚠️ READ THIS FIRST:
+To unlock **exclusive William bonuses**, you must purchase from the **Front End link** below.
+
+📌 **WarriorPlus Link (FE):**  
+`warriorplus[dot]com/o2/a/n78ct44/0/g`  
+🎯 **Affiliate ID: 614944 – mobikill2016** (Required for bonus eligibility)
+
+---
+
+## 🧠 Front End (FE): Genio  
+🎟️ **Use Coupon Code: GNO3OFF**  
+🛠️ Build high-converting AI-powered businesses in minutes  
+👉 Link:  
+`warriorplus[dot]com/o2/a/n78ct44/0/g`
+
+---
+
+## ♾️ OTO 1: Genio Unlimited  
+🚀 Unlock all features and unlimited usage  
+👉 `grabgenio[dot]com/unlimited-edition`  
+💸 Discount: `$20`
+
+---
+
+## 📦 OTO 2: Genio Done For You  
+🎁 Preloaded profit systems and DFY campaigns  
+👉 `grabgenio[dot]com/done-for-you`  
+💸 Discount: `$100`
+
+---
+
+## ⚙️ OTO 3: Genio Automation  
+🤖 Automate income streams for hands-free profits  
+👉 `grabgenio[dot]com/automation-edition`  
+💸 Discount: `$20`
+
+---
+
+## 💹 OTO 4: Genio Income Maximizer  
+💰 Boost conversions and sales automatically  
+👉 `grabgenio[dot]com/income-maximizer`  
+💸 Discount: `$20`
+
+---
+
+## 🚦 OTO 5: Genio Limitless Rapid Traffic  
+📈 Unlimited traffic tools & viral growth features  
+👉 `grabgenio[dot]com/limitless-traffic`  
+💸 Discount: `$20`
+
+---
+
+## 🤑 OTO 6: Genio Cloned Affiliate Profits  
+🧬 Clone proven affiliate campaigns for instant use  
+👉 `grabgenio[dot]com/cloned-affiliate-profits`  
+💸 Discount: `$20`
+
+---
+
+## 📱 OTO 7: Genio Mobile Income Payday  
+📲 Mobile-ready profit systems for daily income  
+👉 `grabgenio[dot]com/mobile-paydayz`  
+💸 Discount: `$20`
+
+---
+
+## 🏢 OTO 8: Genio Franchise Rights  
+🛍️ Resell Genio as your own & keep 100% profits  
+👉 `grabgenio[dot]com/franchise-rights`  
+💸 Discount: `$100`
+
+---
+
+## 💻 OTO 9: Genio DFY Profit Site  
+🧱 Complete done-for-you affiliate websites  
+👉 `grabgenio[dot]com/dfy-profit-site`  
+💸 Discount: `$20`
+
+---
+
+## 🎁 Bonus Page – What You’ll Get  
+➡️ Bonus Preview:  
+`williamreview[dot]com/genio/`
+
+---
+
+## 💎 Special Bonuses From Me  
+🎁 **Mega 5,000 Bonus Vault – Worth $2,976,749+**  
+👉 Access here:  
+`jvzooplinformation[dot]blogspot[dot]com/2023/04/vip-5000-bonuses-from-william-review.html`
+
+---
+
+## ✅ How to Claim Your Bonuses:
+
+1. Buy **Genio** from the **FE link** above  
+2. Email your **receipt ID** to: `support@williamreview[dot]com`  
+3. You'll receive **ALL bonuses within 12 hours**  
+📧 Be sure to confirm you completed Step 2 via email!
+
+---
